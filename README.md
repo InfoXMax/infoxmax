@@ -2,8 +2,8 @@
 - 👀 I’m interested in Cyber World
 - 🌱 I’m currently learning Cybersecurity
 - 💞️ I’m looking to collaborate on make the internet more secure and easy to use
-- 📫 How to reach me :
-https://www.instagram.com/infoxmax/
+- 📫 How to reach me :<br>
+https://www.instagram.com/infoxmax/ <br>
 https://www.informatiquemax.net/
 
 
